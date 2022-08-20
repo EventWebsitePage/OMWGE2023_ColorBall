@@ -1,1 +1,0 @@
-# OMWGE2023_ColorBall
